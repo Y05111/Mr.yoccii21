@@ -8,4 +8,4 @@ kalau masih awal mulai belajar pemograman, pejari hal ini dulu biar kepalamu tid
 
 - nah dan terakhir ni, yang KE EMPAT, belajar mtkkkkk, nah masalah utama nya kalian kalau gk ngerti ini dulu kalian akan susah belajar nanti nya dan sebenarnya yang di pelajari cuma beberapa doang sih biar kalian makin lancar buat program. dan itu sajaaaaaa wkwkwkwk. 
 
-pesan ku sih mending kuasai satu bahasa aja dari pada nyoba sana sini dan malahan kalian yang kesusahan sendiri, sekian dari gw(y051).
+pesan ku sih mending kuasai satu bahasa aja dari pada nyoba sana sini dan malahan kalian yang kesusahan sendiri, sekian dari gw(Y051).
